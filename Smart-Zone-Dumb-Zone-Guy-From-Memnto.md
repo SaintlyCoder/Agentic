@@ -1,0 +1,1 @@
+llams have two characteristics number one they have a smart Zone and a dam zone number two they're a bit like the guy from momento they wake up every day and they forget everything we need to work within these constraints and this is where context engineering plays a big place 
